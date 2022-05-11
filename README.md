@@ -1,1 +1,1 @@
-# lovari9876.github.io
+# lovari github blog for portfolio
